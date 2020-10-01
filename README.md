@@ -1,4 +1,4 @@
-Logr
+Logr THE insane PROJECT
 ====
  - - -
 
